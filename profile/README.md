@@ -11,7 +11,7 @@
   
   <h2>Benefits of Using a Prohormone Stack for Strength</h2>
   <p>
-    Using the best prohormone for strength can give you many benefits. Here are some reasons to consider adding a prohormone stack to your training:
+    Using the best prohormone for strength can give you many benefits. Here are some reasons to consider adding a <a href="https://github.com/best-prohormone-stacks">prohormone stacks</a> to your training:
   </p>
   <ul>
     <li><strong>Increased Muscle Power:</strong> Helps you build strength and lift heavier weights.</li>
